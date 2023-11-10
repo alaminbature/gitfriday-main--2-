@@ -1,1 +1,1 @@
-# omale is finding it difficult to learn python.
+# omale is finding it difficult to learn python.kkkkkkkk
